@@ -1,8 +1,8 @@
-- 👋 hi im @hedgr
+- 👋 hi im @hedgr and i hate you all
 - 👀 dying
-- 🌱 the sacred jedi arts
+- 🌱 learning the sacred jedi arts
 -    eeeeeeeeeeeeeeeeeeeeeeeeeee
-- 📫 please dont but if you have to hedgr.n.stuf@gmail.com
+- 📫 please dont need to contact me but if you have to hedgr.n.stuf@gmail.com
 
 <!---
 Hedgr/Hedgr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
