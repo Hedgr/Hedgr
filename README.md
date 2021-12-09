@@ -1,8 +1,8 @@
-- 👋 hi im @hedgr and i hate you all
-- 👀 dying
-- 🌱 learning the sacred jedi arts
+- 👋 merry crimes
+- 👀 burning orphans in the fireplace
+- 🌱 learning how the fuck santa gets around that fast
 -    eeeeeeeeeeeeeeeeeeeeeeeeeee
-- 📫 please dont need to contact me but if you have to hedgr.n.stuf@gmail.com
+- 📫 dont need to contact me
 
 <!---
 Hedgr/Hedgr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
