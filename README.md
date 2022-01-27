@@ -1,7 +1,7 @@
-- 👋 *BIGGER NUMBERRRR* (2022)
+- 👋 shoot me
 - 👀 < dead pac-man ghost spotted
-- 🌱 learning how the hell santa gets around that fast
--    eeeeeeeeeeeeeeeeeeeeeeeeeee
+- 🌱 plant
+-    
 - 📫 just dont need to contact me please
 
 <!---
