@@ -1,7 +1,4 @@
 - 👋 shoot me
-- 👀 < dead pac-man ghost spotted
-- 🌱 plant
--    
 - 📫 just dont need to contact me please
 
 <!---
